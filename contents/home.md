@@ -1,16 +1,16 @@
 
 
-[![senli1073](https://img.shields.io/badge/senli1073-github-blue?logo=github)](https://github.com/senli1073)
+[![White-ZXC](https://img.shields.io/badge/White-ZXCgithub-blue?logo=github)](https://github.com/White-ZXC)
 
-He is currently pursuing a Master's Degree in Computer Science, at School of Computer Science and Technology, China University of Mining and Technology, China.
+Concentrating on Computer Science , He comes from Minzu University of China and major in computer science.
 
 #### Email
 sli[at]cumt.edu.cn
 
 #### Education
-M.E., Computer Science and Technology, China University of Mining and Technology, 2022—2025 (expected).\
-B.E., Data Science and Big Data Technology, China University of Mining and Technology, 2018—2022.
+U.C., Computer Science and Technology, Minzu University of China, 2024—2028 (expected).\
+More are waiting...
 
 #### Research Interests
-Deep Learning, Artificial Intelligence Seismology, Mine Microseismic.
+NONE...
 
