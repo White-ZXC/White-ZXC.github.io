@@ -1,9 +1,7 @@
-- First-prize Academic Scholarship, 2023.
+- The First Youth Marxist Youth League Cadre Training Camp in Huizhou City, 2019.
 
-- Freshman Academic Scholarship, 2022.
+- Outstanding Graduate of Huizhou Rongcheng middle school (Junior High School), 2021.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- Outstanding Graduate of Huizhou City (Senior High School), 2022-2023.
 
-- First-prize Enterprise Scholarship, 2021.
-
-- First-prize Academic Scholarship, 2019.
+- More are waiting...

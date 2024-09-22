@@ -5,7 +5,7 @@
 Concentrating on Computer Science , He comes from Minzu University of China and major in computer science.
 
 #### Email
-sli[at]cumt.edu.cn
+2868927917@qq.com
 
 #### Education
 U.C., Computer Science and Technology, Minzu University of China, 2024—2028 (expected).\
