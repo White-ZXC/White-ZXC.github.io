@@ -4,4 +4,6 @@
 
 - Outstanding Graduate of Huizhou City (Senior High School), 2022-2023.
 
+- IEEEXtreme – 24-Programming Competition ranked 2533 in the world.
+
 - More are waiting...
