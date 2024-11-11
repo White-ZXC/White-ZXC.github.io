@@ -8,7 +8,7 @@ Concentrating on Computer Science , He comes from Minzu University of China and 
 2868927917@qq.com
 
 #### Education
-U.C., Computer Science and Technology, Minzu University of China, 2024—2028 (expected).\
+B.E., Computer Science and Technology, Minzu University of China, 2024—2028 (expected).\
 More are waiting...
 
 #### Research Interests
